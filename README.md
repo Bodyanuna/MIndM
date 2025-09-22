@@ -1,1 +1,0 @@
-# MIndM_lab1
